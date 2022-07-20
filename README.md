@@ -1,3 +1,3 @@
-але 
-телеграм - @fiosone
-Телеграм канал - @anemonehack
+emae kyda ya popal
+Telegram - @fiosone
+Telegram channel - @anemonehack
